@@ -4,4 +4,6 @@ date: 2026-06-28
 tags:
 publish: true
 ---
-new test
+testing new file structure
+
+![[stats_leading_up_to_orange_curtain.jpg]]
