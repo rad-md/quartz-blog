@@ -9,7 +9,7 @@ A few months back, a friend of mine (for the sake of this story, we'll call him 
 
 Among all of the different running flavors like sprinters, trail runners, and road runners, I lean heavily towards road historically. I live about a mile away from the entrance to a road creek trail in Irvine that spans all across the city, spanning around 20 miles (40 miles if I wanted to go all the way out and back). I've logged around 2000 miles going up and down this creek trail for the last two years. 
 
-Over time, this 24 hour race slowly piqued my interest as one of my for-fun one-off ultras (previous ones I did were the [Taco Bell 50k](https://tacobell50k.com/) and the [Will Rogers 24h relay](https://www.khraces.com/series/will-rogers)). Some time in April, I pulled the trigger and spent the $250 to participate in this run: the Orange Curtain 24 hour.
+Over time, this 24 hour race slowly piqued my interest as one of my for-fun one-off ultras (previous ones I did were the [Taco Bell 50k](https://tacobell50k.com/) and the [Will Rogers 24h relay](https://www.khraces.com/series/will-rogers)). Some time in April, I pulled the trigger and spent the $250 to participate in this run: the [Orange Curtain 24 hour](https://orangecurtainrun.com/).
 
 #### The Preparation
 
@@ -27,7 +27,7 @@ I didn't do anything like this for Orange Curtain. At this race, I knew I would 
 3. 3x Honey Stinger caffeine gummies
 4. Blister care kit
 
-The bill came out to around $110. Over the course of my run, of these things, I only took 2 caffeine gummies ($4).
+The bill came out to around 110 dollars. Over the course of my run, of these things, I only took 2 caffeine gummies (4 dollars).
 
 #### Race Day and Preparation
 
